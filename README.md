@@ -1,4 +1,4 @@
 ## Olá!
 
-**Me chamo Fonsii, é um prazer**
+**Me chamo Fonsii, é um prazer.**
 
